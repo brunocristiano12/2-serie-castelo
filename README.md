@@ -1,1 +1,1 @@
-# 2-serie-castelo
+# 2-serie-casteloA biotecnologia verde utiliza técnicas avançadas de manipulação genética para melhorar características de organismos vivos, como plantas e microorganismos, de forma a torná-los mais eficientes na produção de alimentos, energia e materiais.
